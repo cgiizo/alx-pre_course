@@ -1,1 +1,1 @@
-Be up to date
+be collaborative
